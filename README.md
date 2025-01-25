@@ -1,7 +1,6 @@
-## (❁´◡`❁) shrimp..
-![image](https://github.com/user-attachments/assets/a6fa85fc-36c1-4afb-84f2-585eaf709c71)
-![image](https://github.com/user-attachments/assets/f45dab70-9940-4b01-8b37-b6a337e85d04)
-
+##  "Name's Boothill. Those who've heard of me know what I'm about. Those who haven't... well, for the sake of your own skin, you best keep it that way."
+                                                         ⋆｡‧˚ʚ🍒ɞ˚‧｡⋆
+![image](https://github.com/user-attachments/assets/afea6435-1b7e-4769-98a2-ed5c89f6a16e)
 
 <!--
 **berrybluey/berrybluey** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
