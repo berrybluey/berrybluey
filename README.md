@@ -1,4 +1,5 @@
 ## (❁´◡`❁)
+![image](https://github.com/user-attachments/assets/da931c3f-325d-4987-8d05-b936c6ee0726)
 
 <!--
 **berrybluey/berrybluey** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
