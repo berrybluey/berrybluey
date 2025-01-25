@@ -1,5 +1,7 @@
-## (❁´◡`❁)
-![image](https://github.com/user-attachments/assets/da931c3f-325d-4987-8d05-b936c6ee0726)
+## (❁´◡`❁) shrimp..
+![image](https://github.com/user-attachments/assets/a6fa85fc-36c1-4afb-84f2-585eaf709c71)
+![image](https://github.com/user-attachments/assets/f45dab70-9940-4b01-8b37-b6a337e85d04)
+
 
 <!--
 **berrybluey/berrybluey** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
