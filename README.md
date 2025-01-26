@@ -2,5 +2,5 @@
       ⋆｡‧˚🍒˚｡⋆
 ![image](https://github.com/user-attachments/assets/afea6435-1b7e-4769-98a2-ed5c89f6a16e)
 
-![image](https://github.com/user-attachments/assets/3ec68693-a297-4aa7-b4bc-1a873094f3d6) ![image](https://github.com/user-attachments/assets/a2a50216-4928-41d9-b828-7583494017e4)
-                                             these are me irl trusttt
+![image](https://github.com/user-attachments/assets/3ec68693-a297-4aa7-b4bc-1a873094f3d6)
+                                             ME JUMPSCARE
