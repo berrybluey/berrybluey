@@ -1,5 +1,7 @@
-## ★. ` 🩰 ⋅ ˚✮ teehee (❁´◡`❁)
-![image](https://github.com/user-attachments/assets/ec533878-fee9-4196-b20b-1b5e28d63ee2)
+## ★. ` 🍔 hamburber (❁^◡^❁)
+![image](https://github.com/user-attachments/assets/c958959e-a33f-4cb0-965c-39442c6a81b0)
+
+
 
 
 
