@@ -1,8 +1,5 @@
-## "This is some fudgin' fine weather we're havin'. Wonder which little son of a nice lady is gonna run outta luck today." ^_^
-          
-           ★. ` 🍒 ⋅ ˚✮
-
-![image](https://github.com/user-attachments/assets/8538291f-e110-4831-bed5-96771b744043)
+## ★. ` 🩰 ⋅ ˚✮ teehee (❁´◡`❁)
+![image](https://github.com/user-attachments/assets/ec533878-fee9-4196-b20b-1b5e28d63ee2)
 
 
 
