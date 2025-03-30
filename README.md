@@ -2,7 +2,7 @@
 
 tick tock!! oh boy! i ate too much this time! 🕒.(＠＾０＾)❤️
 
-me dancing  ![image](https://github.com/user-attachments/assets/46fbfbd2-daa1-4713-958a-e01cd47cb387) ^_^
+me ![image](https://github.com/user-attachments/assets/7967cba5-3354-4140-9112-69bccd0c3555)
 
 
 
