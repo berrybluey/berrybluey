@@ -1,10 +1,8 @@
-🍹 .⋆˚࿔ berry !! (๑ᵔ⤙ᵔ๑) . 
-i love caprisun .  
-    (. ❛ ᴗ ❛.)/ int w me! . ၄၃ ⛱️⁛🌅
- 
- ![CaprisunGIF (2)](https://github.com/user-attachments/assets/4fca5e7f-51ff-4b5b-852a-c0d6de10388a)
+![image](https://github.com/user-attachments/assets/c6d126fb-2f2f-4ef5-8e7a-9645d1ccbca8)
 
+tick tock!! oh boy! i ate too much this time! 🕒.(＠＾０＾)❤️
 
+me dancing  ![image](https://github.com/user-attachments/assets/46fbfbd2-daa1-4713-958a-e01cd47cb387) ^_^
 
 
 
