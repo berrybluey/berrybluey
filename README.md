@@ -1,10 +1,5 @@
-![image](https://github.com/user-attachments/assets/c6d126fb-2f2f-4ef5-8e7a-9645d1ccbca8)
+![image](https://github.com/user-attachments/assets/0addf025-b475-4ad8-9b14-c41b2cef09a2)
 
-tick tock!! oh boy! i ate too much this time! 🕒.(＠＾０＾)❤️
-
-me ![image](https://github.com/user-attachments/assets/7967cba5-3354-4140-9112-69bccd0c3555)
-
-
-
+yeah 
 
 
