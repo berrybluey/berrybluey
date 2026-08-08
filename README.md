@@ -1,7 +1,7 @@
 <div align="center">
  <img width="160" height="32" alt="image" src="https://github.com/user-attachments/assets/d6391f1b-c814-4e2f-9c45-a0cb1a6aaca3" />
 
-#####   <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/e1e34fc1-5739-4f8b-8404-b684d72e0a10" /> ಄ , yabadabadoo ! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/300ab2be-e5d9-4dc4-814a-a652169eae51" />
+#####   <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/e1e34fc1-5739-4f8b-8404-b684d72e0a10" /> ಄ , yabba dabba dooo ! <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/300ab2be-e5d9-4dc4-814a-a652169eae51" />
 
 <img width="736" height="541" alt="image" src="https://github.com/user-attachments/assets/31bdc2b1-5de0-4957-836a-154ee3091461" />
 
