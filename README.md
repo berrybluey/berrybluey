@@ -9,4 +9,4 @@
 
 <br/><sub>_" LAMMY ROCKS !! "_<br/> 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31sdagc3px446uh7yyklyc5xinf4&cover_image=true&theme=spotify-embed&show_offline=false&background_color=d95000&interchange=false&profanity=false&hide_remaster=false&mode=light&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31sdagc3px446uh7yyklyc5xinf4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
