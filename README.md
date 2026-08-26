@@ -1,5 +1,11 @@
 <div align="center">
 
-<img width="290" height="210" alt="Mudwizard_Re-draws_Lammy_Rocks___Um_Jammer_Lammy_Sheep_Girl_Poster-removebg-preview" src="https://github.com/user-attachments/assets/6b9ce7ff-0fd3-4633-9662-d9885cc0d717" />
+<img width="300" height="230" alt="_-removebg-preview" src="https://github.com/user-attachments/assets/b4a3391a-a2c6-4c7a-be52-b14338d2299f" />
 
+
+
+<br/>
+<br/
+
+<br/><sub>_" LAMMY ROCKS !! "_<br/> 
 
