@@ -4,11 +4,8 @@
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/1f26fc24-348e-48f5-a4cb-96865cd91db4" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/7a158d6f-a005-4fc1-b96c-97bf83b2c8a5" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/8dda6476-d4da-4034-881d-e3061a5ba832" />
 
-<br/>
-<br/
   
   hi guys <img width="89" height="40" alt="seal___-removebg-preview" src="https://github.com/user-attachments/assets/9c06ea91-8468-4d50-bb37-dfe232065e1a" /> check other stuff
-
 <br/><sub>_" LAMMY ROCKS !! "_<br/> 
 ᵎ!ᵎ [ᗩTᗩᗷOOK](https://berrybluey.atabook.org))  ,,  [STᖇᗩᗯᑭᗩGE](https://thecaprisunmonster.straw.page) ᵎ!ᵎ
 
