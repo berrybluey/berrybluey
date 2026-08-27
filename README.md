@@ -7,7 +7,7 @@
   
   hi guys <img width="89" height="40" alt="seal___-removebg-preview" src="https://github.com/user-attachments/assets/9c06ea91-8468-4d50-bb37-dfe232065e1a" /> check other stuff
 <br/><sub>_" LAMMY ROCKS !! "_<br/> 
-ᵎ!ᵎ [ᗩTᗩᗷOOK](https://berrybluey.atabook.org))  ,,  [STᖇᗩᗯᑭᗩGE](https://thecaprisunmonster.straw.page) ᵎ!ᵎ
+ᵎ!ᵎ [ᗩTᗩᗷOOK](https://berrybluey.atabook.org)  ,,  [STᖇᗩᗯᑭᗩGE](https://thecaprisunmonster.straw.page) ᵎ!ᵎ
 
 
 
